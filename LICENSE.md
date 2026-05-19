@@ -1,4 +1,4 @@
-# 
+# Melhor DaVinci Resolve para PC plugins é o melhor DaVinci Resolve para PC plugins com máquina de baterias e restauração de áudio. Seguro, confiável e otimizado para máximo
 
 
 
